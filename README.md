@@ -1,0 +1,12 @@
+<img width="497" height="306" alt="تعليق توضيحي 2025-10-28 153910" src="https://github.com/user-attachments/assets/e56da429-b7c9-4306-be11-f9a1402dc10a" />
+<img width="743" height="490" alt="تعليق توضيحي 2025-10-28 154806" src="https://github.com/user-attachments/assets/cda11acb-ba5d-4f91-b77f-6363e54c95af" />
+<img width="733" height="514" alt="تعليق توضيحي 2025-10-28 154707" src="https://github.com/user-attachments/assets/e202d365-0d28-47ed-a8f0-e77252d710de" />
+<img width="486" height="303" alt="تعليق توضيحي 2025-10-28 154555" src="https://github.com/user-attachments/assets/a6ac2eaf-bee5-48cd-b666-df7ddd24eacd" />
+<img width="487" height="304" alt="تعليق توضيحي 2025-10-28 154531" src="https://github.com/user-attachments/assets/2eb87ccd-660b-4db6-81e5-8352da06333a" />
+<img width="487" height="303" alt="تعليق توضيحي 2025-10-28 154507" src="https://github.com/user-attachments/assets/647fb5cd-6b46-4014-965f-ea43b062ebce" />
+<img width="483" height="306" alt="تعليق توضيحي 2025-10-28 154443" src="https://github.com/user-attachments/assets/99df952e-fa9e-4ec9-baad-1f62767689ef" />
+<img width="472" height="304" alt="تعليق توضيحي 2025-10-28 154418" src="https://github.com/user-attachments/assets/cd5c81c5-d19d-4ed8-8b8f-7c50319e2c62" />
+<img width="501" height="303" alt="تعليق توضيحي 2025-10-28 154205" src="https://github.com/user-attachments/assets/4002e651-cd0b-4e9a-a150-daf6e5c3f492" />
+<img width="535" height="301" alt="تعليق توضيحي 2025-10-28 154131" src="https://github.com/user-attachments/assets/08c376b2-e265-4de8-978f-21da59ec281e" />
+<img width="480" height="300" alt="تعليق توضيحي 2025-10-28 154102" src="https://github.com/user-attachments/assets/3f55ec87-a995-4f9c-b788-2c9135f90ca9" />
+<img width="480" height="311" alt="تعليق توضيحي 2025-10-28 154036" src="https://github.com/user-attachments/assets/c52d3c60-1f9a-4fef-a3ec-69308238bea0" />
